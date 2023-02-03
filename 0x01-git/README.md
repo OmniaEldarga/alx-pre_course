@@ -1,1 +1,1 @@
-*i
+Amna is pretty
